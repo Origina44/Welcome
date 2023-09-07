@@ -1,1 +1,1 @@
-# Welcome
+Hello! Im xsoftbud or origina. And i’m making the XSOFT Operating system! Version 1-beta and 1.1 will be released this repository will not have the OS.the os will be in a "Xsosb for the beta and XsoftSW for the official version! Bye!
